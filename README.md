@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail **renan.miranda906@gmail.com**
 
-- 📄 Meu LinkedIn [www.linkedin.com/in/renan-andrade-0884a3228](www.linkedin.com/in/renan-andrade-0884a3228)
+- 📄 Meu LinkedIn [www.linkedin.com/in/renan-andrade-0884a3228]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
